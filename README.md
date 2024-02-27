@@ -12,7 +12,7 @@ Please Activate Your Brain Before Using This.
 Please ⭐ This Repo If You Like It!
 </h3>
 <h3 align="center">
-<a href="https://guns.lol/solve">CONTACT ME HERE</a>
+<a href="https://discord.gg/hiddenleaks">CONTACT ME HERE</a>
 </h3>
 
 
